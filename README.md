@@ -5,4 +5,4 @@ Google Play: https://play.google.com/store/apps/details?id=com.JJVN.RajoyWars
 
 Download APK: https://drive.google.com/open?id=0B1sjhhx7PiFDT0YtQUx2NXF4XzA
 
-Download full project: //coming soon
+Download full project: https://mega.nz/#!z4ZwwIra
